@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kochilover
+- 👀 I’m interested in কচি গুদ
+- 🌱 I’m currently learning বাচ্চা চোদার টেকনিক
+- 💞️ I’m looking to collaborate on গ্যাংব্যঙ্গিং কচি বাচ্চা
+- 📫 How to reach me https://t.me/PdoDoctor
+- 😄 Pronouns: কচি/বাচ্চা
